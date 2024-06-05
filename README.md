@@ -1,1 +1,1 @@
-tu na pewno Łuaksz bedzie chciał łądnie poopisywać!
+tu na pewno Łuaksz bedzie chciał ładnie poopisywać!
