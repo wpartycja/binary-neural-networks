@@ -1,0 +1,1 @@
+tu na pewno Łuaksz bedzie chciał łądnie poopisywać!
